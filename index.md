@@ -1,4 +1,4 @@
-## Insight Project Blog Post - The Vintage Twin Engine
+## Insight Project Blog Post: The Vintage Twin Engine
 
 ### David Hendel
 
